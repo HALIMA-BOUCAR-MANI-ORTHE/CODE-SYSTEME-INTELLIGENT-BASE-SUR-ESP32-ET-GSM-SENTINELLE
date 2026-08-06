@@ -3,3 +3,4 @@ Système intelligent de surveillance et de sécurité en temps réel basé sur E
 
 Autrice 
 Halima BOUCAR MANI ORTHÉ
+www.linkedin.com/in/boucar-mani-orthe-halima
